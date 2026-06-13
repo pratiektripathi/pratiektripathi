@@ -5,9 +5,6 @@ btech in ME . Genius In EC . wise In CS . Certifies AI and DataScience
 
 one man can build your MVP ground up
 
-solved problem with custom manufacturing erp for 
-hariom paper mill,kanpur https://hilz.in
-Agarwal flexible packaging utrakhand app.agaarwalflexiblepackaging.com
 
 aditya flexi pack, 
 anshika polyplast, 
